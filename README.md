@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ethanfulwood
+- 👀 I’m interested in paleontology and functional morphology
+- 📫 How to reach me ethan.fulwood@gmail.com
